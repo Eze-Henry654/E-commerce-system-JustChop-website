@@ -1,1 +1,0 @@
-[![Watch the E-commerce System Demo](https://drive.google.com/file/d/1wmqIhrA58qP3M1cDm3i47jHFzi2yHxXr/view?usp=sharing)](https://drive.google.com/file/d/1VY0J9w1ErzKuz8dvNbsBeWei3jMALFYC/view?usp=sharing)
